@@ -1,2 +1,2 @@
 # KugouResource
-Kugou Resource Ultimate 酷狗资源图片
+Kugou Resource Ultimate 破解Kugou.skn文件
